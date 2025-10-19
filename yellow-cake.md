@@ -2,10 +2,11 @@
 ## Cake
 ### Ingredients
 
-- 9 oz bleached cake flour
-- 12.25 oz sugar
+- 9 oz bleached cake flour (2 1/4 cups)
+  - Substitute 2 cups all-purpose flour and 1/4 cup cornstarch 
+- 12.25 oz sugar (1 3/4 cups)
 - 1 + 1/4 tsp baking powder
-- 1/4 baking soda
+- 1/4 tsp baking soda
 - 1/2 tsp table salt
 - 1/2 cup buttermilk
 - 4 large eggs + 2 yolks
@@ -27,8 +28,8 @@
 ## Frosting 
 ### Ingredients
 - 2 oz 60% chocolate
-- 9 oz confectioner's sugar
-- 1.5 oz cocoa powder
+- 9 oz confectioner's sugar (2 cups)
+- 1.5 oz cocoa powder (1/4 cup + 2 tbsp)
 - 1/4 tsp salt
 - 8 tbsp softened butter
 - 1/4 cup hot water
