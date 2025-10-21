@@ -23,7 +23,7 @@
 4. Mix on medium to aerate 1 min.
 5. Turn mixer to low and gradually add wet ingredients.
 6. Mix on med-high for 3 mins. Don't overmix.
-7. Grease and flour 9x13 in cake pan and add batter. Spread to even out and tap the pan to remove bubbles.
+7. Grease (preferably with vegetable shortening) and flour 9x13 in cake pan and add batter. Spread to even out and tap the pan to remove bubbles.
 8. Bake for 28-32 mins at 350 degrees until cake tester comes out with few crumbs.
 9. Let cool at least 2 hours.
 
