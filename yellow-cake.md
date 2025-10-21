@@ -7,11 +7,12 @@
 - 12.25 oz sugar (1 3/4 cups)
 - 1 + 1/4 tsp baking powder
 - 1/4 tsp baking soda
-- 1/2 tsp table salt
 - 1/2 cup buttermilk
 - 4 large eggs + 2 yolks
 - 1 tbsp vanilla
+- 1/2 tsp table salt
 - 1 stick unsalted butter
+  - Or 1 stick salted butter and reduce salt to 1/4 tsp
 - 1/2 cup veggie oil
 
 ### Recipe
