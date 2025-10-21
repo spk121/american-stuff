@@ -15,15 +15,15 @@
 - 1/2 cup veggie oil
 
 ### Recipe
-1. To mixing bowl, add cake flour, sugar, baking powder, baking soda salt. mix to combine.
-2. Combine buttermilk, eggs, vanilla in separate container, wisk together.
+1. To mixing bowl, add cake flour, sugar, baking powder, baking soda, salt. Mix to combine.
+2. Combine buttermilk, eggs, vanilla in separate container. Whisk together.
 3. Add softened butter, in pieces, and veggie oil to dry ingredients. Mix 30 sec to incorporate.
 4. Mix on medium to aerate 1 min.
 5. Turn mixer to low and gradually add wet ingredients.
 6. Mix on med-high for 3 mins.
 7. Grease and flour 9x13 in cake pan and add batter. Spread to even out and tap the pan to remove bubbles.
 8. Bake for 28-32 mins at 350 degrees until cake tester comes out with few crumbs.
-9. let cool at least 2 hours.
+9. Let cool at least 2 hours.
 
 ## Frosting 
 ### Ingredients
@@ -35,9 +35,9 @@
 - 1/4 cup hot water
 
 ### Recipe
-1. chop fine chocolate and melt in microwave.
+1. Chop fine the chocolate and melt in microwave.
 2. Add sugar, cocoa, salt, butter, and hot water to mixing bowl.
-3. Using wisk attachment, mix on low to combine. Then increase speed to medium for 1 min.
+3. Using whisk attachment, mix on low to combine. Then increase speed to medium for 1 min.
 4. Add melted chocolate and incorporate on low speed.
 5. Allow to set up at room temperature for 30-40 mins.
 6. Frost cake and let set up in fridge about 20 mins.
