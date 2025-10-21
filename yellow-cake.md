@@ -8,6 +8,7 @@
 - 1 + 1/4 tsp baking powder
 - 1/4 tsp baking soda
 - 1/2 cup buttermilk
+  - Subsitution: add 1 + 1/2 tsp lemon juice to 1/2 cup milk. Let stand 5 to 10 minutes until slightly curdled. 
   - TODO: Check bumping to 3/4 cup if crumb not soft enough
 - 4 large eggs + 2 yolks
 - 1 tbsp vanilla
